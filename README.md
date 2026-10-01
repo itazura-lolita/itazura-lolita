@@ -1,6 +1,9 @@
 ## Hi my name is Zura ( = ⩊ = )
 
 <p align="center">
+<img width="242" height="58" alt="1064858b92ksbi7wy" src="https://github.com/user-attachments/assets/a1e01a6c-4b98-4fcf-8e27-233511b1e79c" />
+</p>
+<p align="center">
 I'm 21, Genderfluid and Bisexual 
 </p>
 <p align="center">
@@ -16,7 +19,13 @@ I'm in an open relationship with my girlfriend and I'm good to ERP
 I'm a shy dom, sometimes a switch but I'm more comfortable domming
 </p>
 <p align="center">
+My type is femboys, subby boys and women <3
+</p>
+<p align="center">
 I'm not very good at starting ERPs so bare with me 
+</p>
+<p align="center">
+<img width="459" height="55" alt="3085620psicq8qs9l" src="https://github.com/user-attachments/assets/0f25756e-fb37-4a60-9974-1b7f557bed50" />
 </p>
 <p align="center">
 <img width="150" height="20" alt="blinkiesCafe-ex" src="https://github.com/user-attachments/assets/0bd620b2-b299-43d3-91eb-8bd69ef4d59a" />
@@ -44,3 +53,13 @@ I'm not very good at starting ERPs so bare with me
 <img width="150" height="20" alt="blinkiesCafe-t5" src="https://github.com/user-attachments/assets/b70ce034-ecc5-474f-8e12-0aae31c79a34" />
 <img width="150" height="20" alt="806270ee805e887f871a92a73670d4f4" src="https://github.com/user-attachments/assets/12c90172-ce02-4bd0-b4e2-b708bfac1ce6" />
 </p>
+<p align="center">
+<img width="459" height="55" alt="3085620psicq8qs9l" src="https://github.com/user-attachments/assets/0f25756e-fb37-4a60-9974-1b7f557bed50" />
+</p>
+<p align="center">
+My discord: itazura_lolita
+</p>
+<p align="center">
+My carrd ↓
+</p>
+<p align="center">
