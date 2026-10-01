@@ -63,3 +63,7 @@ My discord: itazura_lolita
 My carrd ↓
 </p>
 <p align="center">
+<a href="https://itazuralolita.carrd.co/">
+<img width="300" height="40" alt="blinkiesCafe-6x" src="https://github.com/user-attachments/assets/aa12dff6-1376-473f-bb7f-f850eb971942" />
+</a>
+</p>
