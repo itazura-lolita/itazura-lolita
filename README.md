@@ -60,10 +60,38 @@ I'm not very good at starting ERPs so bare with me
 My discord: itazura_lolita
 </p>
 <p align="center">
-My carrd ↓
+<img width="459" height="55" alt="3085620psicq8qs9l" src="https://github.com/user-attachments/assets/affef3e8-c51b-48e0-ac21-d2cc65533959" />
+</p>
+<p align="center">
+My socials are on my Carrd ↓
 </p>
 <p align="center">
 <a href="https://itazuralolita.carrd.co/">
 <img width="300" height="40" alt="blinkiesCafe-6x" src="https://github.com/user-attachments/assets/aa12dff6-1376-473f-bb7f-f850eb971942" />
 </a>
+</p>
+<p align="center">
+<img width="459" height="55" alt="3085620psicq8qs9l" src="https://github.com/user-attachments/assets/affef3e8-c51b-48e0-ac21-d2cc65533959" />
+</p>
+<p align="center">
+My pronouns on my Pronouns Page ↓
+</p>
+<p align="center">
+<a href="https://en.pronouns.page/@itazura_lolita">
+<img width="300" height="40" alt="blinkiesCafe-1D" src="https://github.com/user-attachments/assets/dbd1bff3-2da9-4c23-8e30-8b9450598c07" />
+</a>
+</p>
+<p align="center">
+<img width="459" height="55" alt="3085620psicq8qs9l" src="https://github.com/user-attachments/assets/affef3e8-c51b-48e0-ac21-d2cc65533959" />
+</p>
+<p align="center">
+Send me questions and drawings on my Strawpage ↓
+</p>
+<p align="center">
+<a href="https://itazuralolita.straw.page">
+<img width="300" height="40" alt="blinkiesCafe-nL" src="https://github.com/user-attachments/assets/5530c8a5-c708-4b49-8fdd-332b4e43c534" />
+</a>
+</p>
+<p align="center">
+<img width="459" height="55" alt="3085620psicq8qs9l" src="https://github.com/user-attachments/assets/affef3e8-c51b-48e0-ac21-d2cc65533959" />
 </p>
